@@ -42,8 +42,7 @@
 ### 🌐 الروابط الرسمية للاتصال
 * 🌐 **الموقع الرسمي:** [منصة سنبلة](https://walidcumbosonbola.com.free/)
 * 📘 **فيسبوك:** [رابط التواصل الاجتماعي](https://www.facebook.com/share/17QhVZLLDo/)
-* 🎥 **تيك توك:** [محتوى مرئي فلسفي](https://www.tiktok.com/@v.cmo277)
-
+* 🎥 **تيك توك:** [محتوى مرئي فلسفي]https://www.tiktok.com/@v.cmo27?_r=1&_t=ZS-96Kfr24qbt1
 ---
 
 ### 🖼️ مقتطفات من عمارة البصيرة
