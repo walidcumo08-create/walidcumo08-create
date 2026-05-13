@@ -44,7 +44,7 @@
 
 * 📘 **فيسبوك:** [رابط التواصل الاجتماعي](https://www.facebook.com/share/17QhVZLLDo/)
 * 🎥 **تيك توك:** [محتوى مرئي فلسفي]
----https://github.com/walidcumo08-create
+https://www.tiktok.com/@v.cmo27?_r=1&_t=ZS-96KgWDUw02S
 
 ### 🖼️ مقتطفات من عمارة البصيرة
 <div align="center">
