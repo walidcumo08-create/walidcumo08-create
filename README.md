@@ -35,7 +35,7 @@
 | **🏛️ عمارة العتيق** | فلسفة الأثر وفقه الانتماء للمكان | [دخول](https://github.com/walidcumo08-create/Realist-Conscience-Archive) |
 | **⚖️ عمق الفقه** | مقالات مدرسة الضمير في الوعي القانوني والاجتماعي | [دخول](https://github.com/walidcumo08-create/Depth-Jurisprudence) |
 | **🌍 أثر الشتات السوري** | توثيق ضجيج الرصيف وصوت الوعي السوري | [دخول](https://github.com/walidcumo08-create/Syrian-Diaspora-Impact) |
-| **📑 أملاك الدولة** | الأرشيف الرقمي لحماية الوعي بالممتلكات العامة | [دخول](https://github.com/walidcumo08-create/amlak-al-dawla) |
+| **📑 أملاك الدولة** | الأرشيف الرقمي لحماية الوعي بالممتلكات العامة | [https://github.com/walidcumo08-create]
 
 ---
 
