@@ -1,4 +1,3 @@
-
 # 🏛️ مدرسة الضمير الواقعي - الأرشيف الفكري الشامل
 ### "حيث تترعرع السنابل.. ويخلد الأثر"
 
@@ -35,15 +34,15 @@
 | **🏛️ عمارة العتيق** | فلسفة الأثر وفقه الانتماء للمكان | [دخول](https://github.com/walidcumo08-create/Realist-Conscience-Archive) |
 | **⚖️ عمق الفقه** | مقالات مدرسة الضمير في الوعي القانوني والاجتماعي | [دخول](https://github.com/walidcumo08-create/Depth-Jurisprudence) |
 | **🌍 أثر الشتات السوري** | توثيق ضجيج الرصيف وصوت الوعي السوري | [دخول](https://github.com/walidcumo08-create/Syrian-Diaspora-Impact) |
-| **📑 أملاك الدولة** | الأرشيف الرقمي لحماية الوعي بالممتلكات العامة | [https://github.com/walidcumo08-create]
+| **📑 أملاك الدولة** | الأرشيف الرقمي لحماية الوعي بالممتلكات العامة | [دخول](https://github.com/walidcumo08-create) |
 
 ---
 
 ### 🌐 الروابط الرسمية للاتصال
-* 🌐 **الموقع الرسمي:** [منصة سنبلة](http://yourname875.wordpress.com.) 
+* 🌐 **الموقع الرسمي:** [منصة سنبلة (WordPress)](https://walidcum08-ahvpy.wordpress.com)
+* 🆔 **الهوية الموثقة:** [Gravatar Profile](https://gravatar.com/walidcum08.card)
 * 📘 **فيسبوك:** [رابط التواصل الاجتماعي](https://www.facebook.com/share/17QhVZLLDo/)
-* 🎥 **تيك توك:** [محتوى مرئي فلسفي]
-https://www.tiktok.com/@v.cmo27?_r=1&_t=ZS-96KgWDUw02S
+* 🎥 **تيك توك:** [محتوى مرئي فلسفي](https://www.tiktok.com/@v.cmo27?_r=1&_t=ZS-96KgWDUw02S)
 
 ### 🖼️ مقتطفات من عمارة البصيرة
 <div align="center">
